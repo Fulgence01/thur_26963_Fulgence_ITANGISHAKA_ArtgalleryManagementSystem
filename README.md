@@ -1,0 +1,1 @@
+# thur_26963_Fulgence_ITANGISHAKA_ArtgalleryManagementSystem
